@@ -1,1 +1,1 @@
-Wow a doggo
+Wow a cute doggo
