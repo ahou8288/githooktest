@@ -1,1 +1,1 @@
-wassup lambdas
+wassup lambd
